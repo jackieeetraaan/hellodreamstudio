@@ -3,12 +3,14 @@ Check out my Instagram for a more indepth look into my work! [@hellodreamstudio]
 
 _currently making: a steering wheel cover for a friend <3_
 
-### Knitted Works
-
-![Image](src)
-
-
-
-
-### Crocheted Works
-![Image](https://www.instagram.com/p/CQjwfj5t9Df/?utm_source=ig_web_copy_link)
+## My Finished Projects
+![Image](IMG_1505.jpeg)
+![Image](IMG_1368.jpeg)
+![Image](IMG_0942.jpeg)
+![Image](IMG_0627.jpeg)
+![Image](IMG_0619.jpeg)
+![Image](IMG_0614.jpeg)
+![Image](IMG_0613.jpeg)
+![Image](IMG_0601.jpeg)
+![Image](IMG_0591.jpeg)
+![Image](IMG_0581.jpeg)
