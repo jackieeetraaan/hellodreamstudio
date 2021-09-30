@@ -5,6 +5,7 @@ _currently making: a steering wheel cover for a friend <3_
 
 ## My Finished Projects
 ![Image](IMG_1505.jpeg)
+**sold for $20**
 ![Image](IMG_1368.jpeg)
 ![Image](IMG_0942.jpeg)
 ![Image](IMG_0627.jpeg)
